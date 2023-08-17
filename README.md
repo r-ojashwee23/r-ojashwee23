@@ -1,4 +1,4 @@
-![logo](https://github.com/r-ojashwee23/r-ojashwee23/blob/main/Black%20Technology%20LinkedIn%20Banner.png)
+![logo](https://github.com/r-ojashwee23/r-ojashwee23/blob/main/Black%20Modern%20Graphic%20Designer%20LinkedIn%20Banner.png)
 <h1 align="center">Hi 👋, I'm Ojashwee Raman</h1>
 <h3 align="center">A passionate App and Web designer and frontend developer from India</h3>
 
