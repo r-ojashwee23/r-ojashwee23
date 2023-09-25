@@ -1,3 +1,4 @@
+![logo](Black Modern Graphic Designer LinkedIn Banner.png)
 <h1 align="center">Hi 👋, I'm Ojashwee Raman</h1>
 <h3 align="center">A passionate Web designer and developer from India</h3>
 
