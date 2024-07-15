@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **r.ojashwee23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1a3J1YSEmR4xf9ZXqVo0qq_PJtQzQKUGc/view?usp=drive_link](https://drive.google.com/file/d/1a3J1YSEmR4xf9ZXqVo0qq_PJtQzQKUGc/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1a3J1YSEmR4xf9ZXqVo0qq_PJtQzQKUGc/view?usp=drive_link](https://drive.google.com/file/d/1N50IoCwgQtrBSSmG8RHGh2PMtxvd__0r/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
